@@ -1,1 +1,1 @@
-![Oops! Image didnt download!]("Кот Хакер.jpg")
+![Oops! Image didnt download!](Кот Хакер.jpg)
