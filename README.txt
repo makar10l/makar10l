@@ -1,1 +1,1 @@
-I WANT TO WRITE OS BUT IM VERY BAD CODER
+![Oops! Image didnt download!]("Кот Хакер.jpg")
